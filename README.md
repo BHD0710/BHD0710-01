@@ -23,4 +23,4 @@
 
 归根结底，“黑料不打烊”不仅是一个网络热词，更是一种公众参与舆论的窗口。作为内容消费者，我们应以冷静视角看待每一次“爆料”，不轻信、不盲从，真正做到理性吃瓜、智慧围观。
 
-[Canonical link]( https://github.com/hlw20250703/hlw20250703 ）
+[Canonical link]( https://github.com/BHD0710/BHD0710-01 ）
